@@ -1,3 +1,4 @@
 # git1
-хоспаде да давай же 
-уже
+
+oh lord have mercy of my soul
+
