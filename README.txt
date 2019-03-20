@@ -1,2 +1,2 @@
 # git1
-oooooooooo
+oh lord have mercy of my soul
